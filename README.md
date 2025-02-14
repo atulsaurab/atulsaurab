@@ -7,7 +7,7 @@
 
 - 🤝 I’m looking for help with **Dairy Farm Management System**
 
-- 📫 How to reach me **atulsaurabh12gmail.com**
+- 📫 How to reach me **atulsaurabh1@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
